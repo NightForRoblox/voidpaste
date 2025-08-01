@@ -1,2 +1,2 @@
-Pro script
+Skidded garbage CRACK script
 discord.gg/voidware
